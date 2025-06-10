@@ -7,3 +7,5 @@ LỚP: K58KTP
 MSSV: K225480106025
 
 GIÁO VIÊN GIẢNG DẠY: TS.NGUYỄN VĂN HUY
+
+link Youtube: https://youtu.be/EAGO-VYP67w?si=xDHnVRDcPFlZfH7T
